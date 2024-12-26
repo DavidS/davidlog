@@ -30,4 +30,4 @@ Boy, had I been wrong.
 
 The projects were easy, not because they were worthless or simple, but because my talents and skills applied. When colleagues struggled with connecting the dots across complex systems based off minor technical details, I was the one who could help them. This seismic shift in my thinking was a huge relief, and I cried for the years I've lost beating myself up over the wrong things. I can't wait to see what I'll do with these new-found insights in 2025.
 
-The path to success doesn't have to be painful. Sometimes it is enough to be the right person, at the right pace and time, and not fucking it up.
+The path to success doesn't have to be painful. Sometimes it is enough to be the right person, at the right place and time, and not fucking it up.
